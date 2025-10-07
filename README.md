@@ -12,7 +12,7 @@ Expanding my skills in full-stack concepts and mobile app design
 
 💡 What I bring to the table:
 
-Solid understanding of UI/UX design principles (currently interning as a UI/UX Designer)
+Understanding of digital marketing
 
 Strong grasp of sales, marketing, branding, and business fundamentals
 
